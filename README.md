@@ -1,0 +1,2 @@
+# Legion-7i-16IAX10-728x90
+Legion-7i-16IAX10-728x90
